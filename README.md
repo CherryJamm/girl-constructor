@@ -12,5 +12,5 @@
 
 ---
 
-Все изображения принадлежат Джабиевой Диане. Полный сет можно скачать [по этой ссылке](https://creativemarket.com/dianadzhabieva/948978-Beauty-Illustration-Creator)
+Все изображения принадлежат Джабиевой Диане. Конструктор предоставляется только для некоммерческого использования. Полный сет можно скачать [по этой ссылке](https://creativemarket.com/dianadzhabieva/948978-Beauty-Illustration-Creator)
 
